@@ -15,4 +15,4 @@
 - Embedded & Electrical Systems  
 
 ## 📫 Contact
-- Email: your@email.com
+- Email: Thanabhum2004@gmail.com
